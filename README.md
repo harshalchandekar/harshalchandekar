@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 About Me: Hi I'm Harshal Chandekar.
 Hi I'm Harshal Chandekar.<br><br>I'm currently learning and building new projects.
 
 
